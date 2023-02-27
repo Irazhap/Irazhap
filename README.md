@@ -10,5 +10,5 @@ Zurzeit nehme ich an einem Bootcamp der **"Neue Fische"** teil und möchte somit
 
 - Fahrrad fahren
 - Raubfischangeln
-- wandern
+- Wandern
 - Pilze sammeln.
