@@ -12,3 +12,7 @@ Zurzeit nehme ich an einem Bootcamp der **"Neue Fische"** teil und möchte somit
 - Raubfischangeln
 - Wandern
 - Pilze sammeln.
+
+#### Instagram <a href="https://www.instagram.com/irajap89/">
+  <img align="left" alt="Abhishek's Instagram" width="22px" src="https://raw.githubusercontent.com/hussainweb/hussainweb/main/icons/instagram.png" />
+</a>
